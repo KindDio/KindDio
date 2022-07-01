@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KindDio
+- 👀 I’m interested in being kind
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on meaby some photo edit
+- 📫 How to reach me by typing to me
